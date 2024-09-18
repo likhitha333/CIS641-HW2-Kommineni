@@ -3,7 +3,7 @@
 ## Likhithasree Kommineni
 
 - Exploring new technologies 
-- Paintind and sketching 
+- Painting and sketching 
 - Gardening 
 
 ### Technical Background:
